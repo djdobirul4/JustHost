@@ -1,4 +1,4 @@
-# Latest JustHost Coupon Codes for 2024 - Organized Summary of JustHost Promotions
+# Latest JustHost Coupon Codes for 2025 - Organized Summary of JustHost Promotions
 
 ## JustHost Introduction
 JustHost, a Russian server provider established in 2006, is offering a small bandwidth VPS with unlimited traffic at an affordable price of $1.16 per month. This VPS comes with 512M memory, 1 core, 5G HDD, 10M bandwidth, and 1 IPv4. With 24 data center options including Hong Kong, Singapore, the USA (Los Angeles, Dallas, Atlanta), and more, it's a versatile choice for various hosting needs.
